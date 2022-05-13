@@ -1,2 +1,3 @@
-# slanders
-https://camo.githubusercontent.com/dd8d529fc9f9b6697f858c3b673525881c7c7a816c76c809ace7f9374f62c6e7/68747470733a2f2f692e696d6775722e636f6d2f614f654e7344442e676966
+# slanderss
+![Uploading standard (2).gif…]()
+
